@@ -1,1 +1,1 @@
-[my SSOT](https://magicznyleszek.xyz)
+[my SSOT](https://zefirefemera.xyz)
